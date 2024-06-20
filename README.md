@@ -18,3 +18,4 @@
 • 𝖥𝖺𝖼𝖾𝖻𝗈𝗈𝗄: facebook.com/hadi.pro.codor
 # Itsuki nakano# walawe
 # ItsukiBot
+# ItsukiBot
