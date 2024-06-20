@@ -17,3 +17,4 @@
 • 𝖠𝗌𝖺𝗅: 𝗆𝖾𝖽𝖺𝗇 - 𝗂𝗇𝖽𝗈𝗇𝖾𝗌𝗂𝖺 <br />
 • 𝖥𝖺𝖼𝖾𝖻𝗈𝗈𝗄: facebook.com/hadi.pro.codor
 # Itsuki nakano# walawe
+# ItsukiBot
